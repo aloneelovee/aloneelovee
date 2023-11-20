@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Tamanno
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning PYTHON
+- 📫 How to reach me instagram and telegram: @a1one_lovee;
